@@ -1,2 +1,4 @@
 # hello_world
-Just a making tutorial
+Hi my friends!
+
+I am new of this website.I want to be a expert in that so eveyone help me :)...Thanks!
